@@ -1,1 +1,1 @@
-## Hey there, we are Team Yoak
+## Hey there, we are Team Yoak 👋
